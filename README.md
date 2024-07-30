@@ -1,3 +1,3 @@
 # the-2nd-homework-of-xie
 hhhhh
-This my first try.
+It is not a big deal.
